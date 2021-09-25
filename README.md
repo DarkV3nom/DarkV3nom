@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DarkV3nom
 - 👀 I’m interested in learning about new technogogies, cyber security.
 - 🌱 I’m currently learning programming.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on Photography.
 - 📫 How to reach me : appweekend69@gmail.com
 
 <!---
